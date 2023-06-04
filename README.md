@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Jasmielza
-- 🌱 I’m currently learning microbiology
+- 🌱 I’m currently a MSc.Microbiology student
 - 📫 How to reach me - jasmielzavarghese@gmail.com
 
 <!---
